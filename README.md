@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @GittingOnCode
-- 👀 I’m interested in sports, cooking, traveling and CODING
+- 👀 I’m interested in personal development, fitness, traveling and CODING
 - 🌱 I’m currently learning how to code via The Ordin Project
 - 💞️ I’m looking to collaborate on various of projects TAP in
 - 📫 How to reach me via DM at this current time
